@@ -2,7 +2,7 @@
 
 ###
 
-<img align="right" height="150" src="https://media1.tenor.com/m/nGXyrsIj8a8AAAAd/weird-patterns.gif"  />
+<img align="right" height="150" src="https://media.tenor.com/GD9UKMwnxYIAAAAM/ngoding-mulu.gif"  />
 
 ###
 
